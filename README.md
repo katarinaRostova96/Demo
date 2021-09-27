@@ -1,3 +1,3 @@
-£ Demo
+~ Demo
 
-KatarinaRostova
+Katarina Rostova
